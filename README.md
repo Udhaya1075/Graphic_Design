@@ -1,2 +1,5 @@
-# Graphic_Design
-A collection of my graphic design works including posters and visual creatives, with external viewing links.
+##  Graphic Design Projects
+
+Here is the Google Drive link to my graphic design projects, including poster designs and visual creatives:
+
+👉 https://drive.google.com/drive/folders/13soiztDIvNw5bvWmwxG2HHIlnHD7DgjU?usp=sharing
